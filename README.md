@@ -1,4 +1,5 @@
 # vendorkaos
+VMC KAOS ™ JOGJA 0812 2727 7298 sablon kilat jogja-harga jasa sablon jogjapesan kaos jogja
 Sablon Jogja-sablon kaos jogja-HARGA SABLON KAOS JOGJA MURAH-pabrikkaosjogja-Jasa Sablon Kaos Jogja - Konveksi Murah
 -jasa sablon kaos murah di jogja berkualitas dan terpercaya-konveksimurahjogja-sablon kaos satuan jogja
 -sablon kaos satuan sleman-bikin kaos satuan jogja-vendor kaos jogja-sablon kaos satuan bantul-sablon hoodie satuan jogja
